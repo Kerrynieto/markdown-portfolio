@@ -1,1 +1,1 @@
-Replace this with an image, like your photo. Ensure you include some alt-text.
+George [Male orange tabby cat with long hair](file:///Users/kerrynieto/Desktop/kerry-nieto/img/george1.png)
