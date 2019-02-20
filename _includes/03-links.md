@@ -1,1 +1,1 @@
-[A link to Kerry's Twitter] (https://twitter.com/HonkiCat)
+[A link to Kerry's Twitter] (https://www.twitter.com/HonkiCat)
