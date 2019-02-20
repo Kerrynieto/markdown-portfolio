@@ -1,1 +1,1 @@
-George [Male orange tabby cat with long hair](file:///Users/kerrynieto/Desktop/kerry-nieto/img/george1.png)
+George [Male orange tabby cat with long hair](https://www.google.com/url?sa=i&rct=j&q=&esrc=s&source=images&cd=&cad=rja&uact=8&ved=2ahUKEwja9puFwcngAhUGHzQIHZA7A8UQjRx6BAgBEAU&url=http%3A%2F%2Fcatoftheday.com%2Farchive%2F2015%2FMay%2F08.html&psig=AOvVaw0zoKQLG1_9Pa3-6yjSBsyw&ust=1550724473738284)
